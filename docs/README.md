@@ -1,0 +1,1 @@
+see: [here](https://curse-elderberry-e4c.notion.site/Elixir-school-c8b8a246d23f4c4aa4b645877cded15a?pvs=4)
